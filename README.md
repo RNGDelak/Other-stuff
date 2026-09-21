@@ -1,3 +1,3 @@
-# Other stuff i make to solve such problem when doing project
+just a poor guy having ASD, ADHD and Dylexia
 
 for those anyone finds this interesting
