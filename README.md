@@ -1,3 +1,3 @@
-just a poor guy having ASD, ADHD and Dylexia
+just a poor guy having ASD, ADHD and Dyslexia running simultaneuoslt
 
 for those anyone finds this interesting
